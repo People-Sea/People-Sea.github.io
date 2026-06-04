@@ -1,1 +1,1 @@
-# People-Sea.github.io
+# people-sea.github.io
